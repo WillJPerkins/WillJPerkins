@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @WillJPerkins
+- 🌱 I’m interested in behavioural ecology and statistics
+- 📫 How to reach me: will.perkins462@gmail.com
